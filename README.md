@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **yassineraghouiofficiel@hotmail.com**
 
-- 📄 Know about my experiences [5month of HTML / CSS](5month of HTML / CSS)
+- 📄 Know about my experiences 5month of HTML / CSS
 
 - ⚡ Fun fact **I am to lazy to learn something**
 
